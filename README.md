@@ -56,8 +56,6 @@ z<div align='center'>
 <a href="https://www.instagram.com/taiwo_mary_babawale?igsh=cmkxc2htbGtreXpn&utm_source=qr" target="_blank"><img src="https://img.shields.io/badge/instagram-%23E4405F.svg?&style=flat-square&logo=instgram&logoColor=white" alt="instagram"></a>
 </div>
 
-------
-life is full of activties🌟
 
 
 ------
